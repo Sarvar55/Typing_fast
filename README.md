@@ -1,3 +1,6 @@
+![Uploading record_210818_004211.gif…]()
+
+
 # typing_fast
 
 ## Project setup
