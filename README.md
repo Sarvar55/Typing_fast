@@ -1,5 +1,5 @@
-![Uploading record_210818_004211.gif…]()
 
+![record_210818_004211](https://user-images.githubusercontent.com/76266468/129805079-5363b184-2153-4782-a8f6-bd2623a2366d.gif)
 
 # typing_fast
 
